@@ -13,4 +13,5 @@ ___
 ___
 #### Overall
 - This week was pretty redeeming i'd say. Being able to have class at a heritage site and do some pretty cool stuff with some tech that is new to me was awesome.
-- The biggest takeaway for me was my enthusiasm and liking (which I didn't expect to happen) to Polycam. I liked being in control, I liked being able to scan really anything, and I think the 3D digital copy is so cool. It's definitely the type of thing I want to continue using. 
+- The biggest takeaway for me was my enthusiasm and liking (which I didn't expect to happen) to Polycam. I liked being in control, I liked being able to scan really anything, and I think the 3D digital copy is so cool. It's definitely the type of thing I want to continue using.
+___
